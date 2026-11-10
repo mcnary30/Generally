@@ -216,4 +216,4 @@ GeneRally is the full free version of the game, providing all features and updat
 Download GeneRally today and relive the excitement of classic racing with friends—it's a safe download with all features included!
 
 ---
-**Last updated:** 2026-11-10 16:54:47 UTC
+**Last updated:** 2026-11-10 22:13:49 UTC
